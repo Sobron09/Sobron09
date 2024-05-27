@@ -1,4 +1,4 @@
-## oibem-vindo(a) 🤙
+## oi bem-vindo(a) 🤙
 
 Meu nome e Lauryn 
 
